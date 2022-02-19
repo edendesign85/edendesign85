@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @edendesign85
-- 👀 I’m interested in ... famiily history and book design
+- 👀 I’m interested in ... famiily history, book design, visual arts, live theater & concerts, sushi!
 - 🌱 I’m currently learning ... better Adobe CC skills
 - 💞️ I’m looking to collaborate on ... my app idea
 - 📫 How to reach me ... fran@edengraphics.net
